@@ -33,4 +33,4 @@ Overall default rate and total loan count KPI cards
 A summary insight callout
 Author
 
-Varsha Nemalikonda LinkedIn | varshanemalikonda0308@gmail.com
+Varsha Nemalikonda | varshanemalikonda0308@gmail.com
